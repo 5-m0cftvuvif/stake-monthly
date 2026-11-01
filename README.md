@@ -6,10 +6,7 @@
 
 ## ⚠️ Important Notice
 
-- 🎁 New users may qualify for a $250 USD Welcome Bonus.
-- 💳 No deposit required for registration, just claim your $250 USD bonus.
-- 🏷 Use promo code: **GOAT**  
-- 🔗 Registration Link: **[Dicewin Casino](https://dicewin.cc/auth/register?promo=goat)**
+[![Stake Monthly](https://github.com/5-m0cftvuvif/stake-monthly/blob/main/stake%20monthly.jpg)](https://betzed.cc)
 
 ---
 
