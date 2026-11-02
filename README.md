@@ -6,7 +6,7 @@
 
 ## ⚠️ Important Notice
 
-[![Stake Monthly](https://github.com/5-m0cftvuvif/stake-monthly/blob/main/stake%20monthly.jpg)](https://betzed.cc)
+[![Stake Monthly](https://github.com/5-m0cftvuvif/stake-monthly/blob/main/stake-monthly.jpg)](https://betzed.cc)
 
 ---
 
